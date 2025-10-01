@@ -9,7 +9,9 @@
 
 - 📝 I regularly write articles on [LinkedIn](LinkedIn)
 
-- ⚡ Fun fact **I love learning new languages, and discover other cultures and history background**
+- ⚡ Fun fact 
+**I love learning new languages,
+discover other cultures**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
